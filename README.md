@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there :wave:
 
 My name is Alaina Mitchell :grin:
 
